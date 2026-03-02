@@ -39,7 +39,3 @@ I am open to research collaborations in:
 • Sustainable crop protection systems
 Contact
 2021ag7563@uaf.edu.pk
-
-
-Email: your-email
-Location: Pakistan
